@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MintyModifications
+- We are a team of different product makers for fivem 
+- The developers we have are eup, map, vehicle and vehicle liviery makers
+- We are a new development service here to bring you exciting free releases
+- make sure to join our discord https://discord.gg/pDE2KF8Q8d
